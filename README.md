@@ -1,4 +1,4 @@
-# what is time irreversible?
+# why is time irreversible?
 
 Author: Zou,Zhi Kai
 
